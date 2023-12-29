@@ -1,4 +1,4 @@
-# JOÃO PEDRO
+# JOÃO PEDRO :blue_heart:
 ## Bem vindo ao meu perfil GitHub 👋
 
 <!--
